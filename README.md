@@ -20,6 +20,7 @@ But I am really interested in moving out of my fatherland sometime soon. And no 
 
 #### 💁 Also:
 - 💬 talk to me about **mental health**, **tarot**, **occult and supernatural** and **video games**
+- 📷 I like **taking photos**, you can see them at [@glitched.lens](https://www.instagram.com/glitched.lens/)
 - 🖥️ my first computer was **Atari 65XE** with a casette drive
 - 🦉 the owls are **not what they seem**
 
